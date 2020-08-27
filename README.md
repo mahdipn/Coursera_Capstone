@@ -1,1 +1,1 @@
-Just trying to have fun and learn by training!
+Just trying to have fun and learn new things by practicing!
